@@ -1,5 +1,5 @@
 Loki
 Ultron
 Thanos
-Red SKull
+Red Skull
 Green Goblin
